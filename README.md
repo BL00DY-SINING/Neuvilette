@@ -23,6 +23,6 @@
 
 <img width="300" height="50" alt="blue8" src="https://github.com/user-attachments/assets/f3d26b2d-bcff-4fb9-a687-9316be0bee99" /><img width="300" height="50" alt="blue8" src="https://github.com/user-attachments/assets/f3d26b2d-bcff-4fb9-a687-9316be0bee99" /><img width="300" height="50" alt="blue8" src="https://github.com/user-attachments/assets/f3d26b2d-bcff-4fb9-a687-9316be0bee99" />
 
-
+<p align="center">
 <img width="239" height="49" alt="guitar" src="https://github.com/user-attachments/assets/609adaf6-f37a-4135-ba0c-f376b98edc82" />
 <img width="239" height="49" alt="nightsky" src="https://github.com/user-attachments/assets/5ba63a22-adfd-42a4-b3e3-edf10e58b055" />
