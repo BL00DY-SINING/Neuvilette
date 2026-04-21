@@ -6,6 +6,12 @@
 
 <p align="center">
   Neuvilette/callisto's intro
+
+
+<p align="center">
+  <img width="1232" height="23" alt="typewriter (2)" src="https://github.com/user-attachments/assets/5de4a6aa-3369-472a-92e6-3572532822f7" />
+
+
   <p align="center">
  <img width="20" height="20" alt="blue2" src="https://github.com/user-attachments/assets/3833c6cb-0726-4ccd-b033-e06238cb0778" />
   <img width="20" height="20" alt="icecream12" src="https://github.com/user-attachments/assets/7327529b-223e-4f7a-8e32-38cf1171379d" />
