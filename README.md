@@ -16,8 +16,7 @@
 <img width="150" height="20" alt="y61" src="https://github.com/user-attachments/assets/6f404a9f-8b83-46bf-97f2-6ab989ba60ba" />
 <img width="150" height="20" alt="asexualpride" src="https://github.com/user-attachments/assets/a0a7458a-45a6-4d13-bcd4-392f2aae0f39" />
 
-<img width="393" height="35" alt="hearts6" src="https://github.com/user-attachments/assets/a0be16fd-da46-4d86-9273-04a2ccb599f2" />
-<img width="393" height="35" alt="hearts6" src="https://github.com/user-attachments/assets/a0be16fd-da46-4d86-9273-04a2ccb599f2" />
+<img width="300" height="50" alt="blue8" src="https://github.com/user-attachments/assets/f3d26b2d-bcff-4fb9-a687-9316be0bee99" /><img width="300" height="50" alt="blue8" src="https://github.com/user-attachments/assets/f3d26b2d-bcff-4fb9-a687-9316be0bee99" />
 
 
 <img width="239" height="49" alt="guitar" src="https://github.com/user-attachments/assets/609adaf6-f37a-4135-ba0c-f376b98edc82" />
