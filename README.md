@@ -16,3 +16,4 @@
 <img width="150" height="20" alt="y61" src="https://github.com/user-attachments/assets/6f404a9f-8b83-46bf-97f2-6ab989ba60ba" />
 <img width="150" height="20" alt="asexualpride" src="https://github.com/user-attachments/assets/a0a7458a-45a6-4d13-bcd4-392f2aae0f39" />
 
+<img width="1080" height="1080" alt="neuvillette-chibis-v0-dcv8nbjuvjpb1" src="https://github.com/user-attachments/assets/d6d4fa31-b165-4dfa-8475-bf157453b616" />
