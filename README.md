@@ -1,5 +1,6 @@
 # Neuvilette
-                                    Neuvilette/callisto's intro
+<p align="center">
+  Neuvilette/callisto's intro
  <img width="20" height="20" alt="blue2" src="https://github.com/user-attachments/assets/3833c6cb-0726-4ccd-b033-e06238cb0778" />
   <img width="20" height="20" alt="icecream12" src="https://github.com/user-attachments/assets/7327529b-223e-4f7a-8e32-38cf1171379d" />
  𝔠𝔬 𝔥𝔬𝔰𝔱 𝔬𝔣 𝔱𝔥𝔢 𝔰𝔶𝔰𝔱𝔢𝔪 <img width="20" height="20" alt="icecream12" src="https://github.com/user-attachments/assets/ea66fa56-3565-4df2-80c8-461f25478026" /> <img width="20" height="20" alt="blue2" src="https://github.com/user-attachments/assets/3833c6cb-0726-4ccd-b033-e06238cb0778" />
