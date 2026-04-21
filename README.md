@@ -75,6 +75,12 @@ GENSHIN FANS PLS PLS PLS, when im fronting ofc, systems, anyone who isnt on the 
 
 <p align="center">
   <img width="400" height="133" alt="tumblr_a610522eaa94f2cae499823f1c2bf6eb_e2eca5d7_400" src="https://github.com/user-attachments/assets/d869061e-dc85-464c-8bdf-fdf705a42ecf" />
+  <img width="400" height="30" alt="tumblr_b60760540370c6f7056a3958f4dccc15_b5c3ab55_400" src="https://github.com/user-attachments/assets/6fcb635a-a226-4f82-9b8c-29926acfe170" />
+
 <img width="498" height="498" alt="Neuvillette Genshin Impact GIF - Neuvillette Genshin impact Neuvillette sad - Discover   Share GIFs" src="https://github.com/user-attachments/assets/0dfea933-e9fd-4fc9-8734-d5fe07fea75b" />
+<img width="400" height="30" alt="tumblr_b60760540370c6f7056a3958f4dccc15_b5c3ab55_400" src="https://github.com/user-attachments/assets/b4d43bbe-8b6b-459c-ae03-8a3cf2085f36" />
+
 <img width="735" height="353" alt="NEUVILLETTE (1)" src="https://github.com/user-attachments/assets/d6468ab6-cbad-49c1-bb94-376ef6a4e84d" />
+<img width="400" height="30" alt="tumblr_b60760540370c6f7056a3958f4dccc15_b5c3ab55_400" src="https://github.com/user-attachments/assets/77cf1a17-48dc-4f74-8fad-a69dfc789852" />
+
 <img width="736" height="184" alt="Character Comment Decoration_ Neuvillette _ Genshin Impact Hoyolab" src="https://github.com/user-attachments/assets/1651e95a-f46f-4bc3-b9f0-ee6024af463e" />
