@@ -5,7 +5,7 @@
 
 
 <p align="center">
-  Neuvilette/callisto's intro
+  Neuvilette/callisto/flins intro
 <p align="center">
   <img width="96" height="20" alt="download" src="https://github.com/user-attachments/assets/4b4ea2cd-1912-49bd-a908-3b1db9fb0017" />
 <svg xmlns="http://www.w3.org/2000/svg" width="96.2" height="20">
@@ -61,3 +61,20 @@
 <p align="center">
 <img width="239" height="49" alt="guitar" src="https://github.com/user-attachments/assets/609adaf6-f37a-4135-ba0c-f376b98edc82" />
 <img width="239" height="49" alt="nightsky" src="https://github.com/user-attachments/assets/5ba63a22-adfd-42a4-b3e3-edf10e58b055" />
+<p align="center">
+I'm not the host please remember that when interacting. Other wise u can easily identify me when i use 💙 or i'm in my main which is a neuvillette+flins kinsonsa^^
+Hm fandoms..GENSHIN..ofc, Tcoal{ik it's problematic}, Tbhk
+
+
+<p align="center">
+DNI-
+If u cant respect systems, younger than 14[i don't see u as mature, plus i have boundries], Till from alnst kinnies, sonas ocs or wtvr DNI its personal.
+<p align="center">
+INT-
+GENSHIN FANS PLS PLS PLS, when im fronting ofc, systems, anyone who isnt on the DNI
+
+<p align="center">
+  <img width="400" height="133" alt="tumblr_a610522eaa94f2cae499823f1c2bf6eb_e2eca5d7_400" src="https://github.com/user-attachments/assets/d869061e-dc85-464c-8bdf-fdf705a42ecf" />
+<img width="498" height="498" alt="Neuvillette Genshin Impact GIF - Neuvillette Genshin impact Neuvillette sad - Discover   Share GIFs" src="https://github.com/user-attachments/assets/0dfea933-e9fd-4fc9-8734-d5fe07fea75b" />
+<img width="735" height="353" alt="NEUVILLETTE (1)" src="https://github.com/user-attachments/assets/d6468ab6-cbad-49c1-bb94-376ef6a4e84d" />
+<img width="736" height="184" alt="Character Comment Decoration_ Neuvillette _ Genshin Impact Hoyolab" src="https://github.com/user-attachments/assets/1651e95a-f46f-4bc3-b9f0-ee6024af463e" />
