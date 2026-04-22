@@ -85,3 +85,5 @@ GENSHIN FANS PLS PLS PLS, when im fronting ofc, systems, anyone who isnt on the 
 <img width="400" height="30" alt="tumblr_b60760540370c6f7056a3958f4dccc15_b5c3ab55_400" src="https://github.com/user-attachments/assets/77cf1a17-48dc-4f74-8fad-a69dfc789852" />
 
 <img width="736" height="184" alt="Character Comment Decoration_ Neuvillette _ Genshin Impact Hoyolab" src="https://github.com/user-attachments/assets/1651e95a-f46f-4bc3-b9f0-ee6024af463e" />
+<p align="center">
+<img width="400" height="84" alt="hm2" src="https://github.com/user-attachments/assets/bc14dc51-8a06-43e7-a00f-7798e2f7a6e0" />
